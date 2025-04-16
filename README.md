@@ -1,4 +1,5 @@
 ## [A](https://youtu.be/tf71xPW2Ej0?si=XfixBDBFllmv)
+## [B](https://www.youtube.com/watch?v=rPapZJ8n3xs)
 
 <!--
 **wkre12/wkre12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
